@@ -9,7 +9,7 @@
 - Museums
 - Theater plays
 - Literature
-- Cats
+- Cats 🐱
 - Anything you're interested in 😊
 
 Check my LinkedIn : www.linkedin.com/in/capucine-leroy-420040298
