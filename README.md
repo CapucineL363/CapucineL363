@@ -13,7 +13,7 @@
 - Anything you're interested in 😊
 
 Check my LinkedIn : www.linkedin.com/in/capucine-leroy-420040298
-
+And the MSc in Stat webpage : https://www.imperial.ac.uk/study/courses/postgraduate-taught/statistics/
 
 
 
