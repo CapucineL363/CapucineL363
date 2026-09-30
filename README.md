@@ -1,4 +1,4 @@
-## Hi there, I'm Capucine 👋
+## Hy there, I'm Capucine 👋
 
 ### Few facts about me
 
